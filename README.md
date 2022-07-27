@@ -1,4 +1,4 @@
 👋 Hi, I’m @Manojlm
-👀 I’m interested in Data Science, Machine Learning and Data Analytics
+👀 I Actively looking for data analytics / data science opportunities.
 📫 You can reach me on my email id manojrakshitha33@gmail.com
 
